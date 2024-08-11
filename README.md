@@ -6,7 +6,6 @@
 
 - 📫 How to reach me **Amir.h.Bokaei@gmail.com**
 
-- 📄 Know about my experiences [amirbokaei.ir](amirbokaei.ir)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
